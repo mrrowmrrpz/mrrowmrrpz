@@ -1,6 +1,6 @@
 HEY HEY LOOK UP HERE!
 
-@mrrowmrrpz on discord
+@kittypacc on discord
 
 <!---
 mrrowmrrpz/mrrowmrrpz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
