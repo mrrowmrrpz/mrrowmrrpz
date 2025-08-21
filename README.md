@@ -1,5 +1,5 @@
 # I GOT TERMED
-I got termed on asfsek or some shit (ketaminekitty)
+I got termed on asfssfek for some bs. (ketaminekitty)
 ADD ME ON HERE
 
 discord: ketakitty0
