@@ -1,7 +1,7 @@
 # I GOT TERMED
 I got termed on asfssfek for some bs. (ketaminekitty)
-ADD ME ON HERE
 
+ADD MY NEW ONE HERE
 discord: ketakitty0
 
 <!---
