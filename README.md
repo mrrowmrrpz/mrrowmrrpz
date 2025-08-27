@@ -1,8 +1,8 @@
-# I GOT TERMED
-I got termed on asfssfek for some bs. (ketaminekitty)
+# AGAIN. CRAP
+I got termed on ketakitty0 !!
 
 ADD MY NEW ONE HERE
-discord: ketakitty0
+discord: ketakitty1
 
 <!---
 mrrowmrrpz/mrrowmrrpz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
