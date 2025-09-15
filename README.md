@@ -1,8 +1,7 @@
-# AGAIN. CRAP
-I got termed on ketakitty0 !!
-
-ADD MY NEW ONE HERE
-discord: ketakitty1
+# Sept. 15
+suspended again!! fucking yay!!
+add my new discord meow:
+discord: ketakitty2
 
 <!---
 mrrowmrrpz/mrrowmrrpz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
